@@ -1,0 +1,1 @@
+its absolutelly safe file
